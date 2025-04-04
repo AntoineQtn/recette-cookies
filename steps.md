@@ -15,3 +15,7 @@ KIT APPRENANT
 
 - Pour former les cookies, utiliser 2 cuillères à soupe et faire des petitstas espacés pour la cuisson.
 - Enfourner pour 10 minutes de cuisson.
+
+
+Ranger l'assiette à cookies
+et celle des bonbons
